@@ -37,3 +37,5 @@ https://shimingka.top
 https://kuaijiema.top
 
 # Omiai账号
+
+<img src="pic/bbb.png" alt="Omiai账号出售" border="0">
